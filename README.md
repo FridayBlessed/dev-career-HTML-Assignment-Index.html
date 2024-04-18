@@ -1,0 +1,1 @@
+dev career responsive table assignment 
